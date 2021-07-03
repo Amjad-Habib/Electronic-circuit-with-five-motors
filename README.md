@@ -5,4 +5,4 @@
 
 
 
-- **Tinkercad project** :(https://www.tinkercad.com/things/cIwxOt48SaH-magnificent-duup/editel)
+- **Tinkercad project** :(https://www.tinkercad.com/things/cIwxOt48SaH-electronic-circuit-/editel)
